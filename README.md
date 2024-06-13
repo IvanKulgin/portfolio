@@ -9,4 +9,4 @@
 
 #### Фото новое
 
-![](klike.net/uploads/posts/2022-08/1661254765_j-72.jpg)
+![](lvj-I3Y6Fl4.jpg)
